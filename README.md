@@ -1,4 +1,4 @@
-# EraQueenA-_ENG_Extra-DN-Role-Edition
+# EraQueenA+_ENG_Extra-DN-Role-Edition
 This translation has been translated and modified from the Chinese version EraQueenA+人外拓展版 of November 2021  
 
 For code learning and internal communication between enthusiasts only 
