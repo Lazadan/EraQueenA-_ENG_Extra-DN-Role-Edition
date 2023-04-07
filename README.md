@@ -11,5 +11,9 @@ Please ensure that you can accept the above content before playing the game
 
 Well, if you understand the above and still choose to continue, just enjoy your journey~  
 
+And welcome to join the 18+ Discord server for Death Note fanworks.
+
+link:https://discord.gg/XF26qFyvtq
+
 
 Translated/Extra mod made by Lazadan 4/1/2023
